@@ -10,3 +10,5 @@ I would like to thank the team that made Miraheze the amazing community it was t
 Every single one of us who have been involved in the project has made memories. Some of them fun, some of them crazy. We've also made friends that I hope we remain in touch with whatever the next weeks and months bring.
 
 I wish everyone on the project success in whatever they go on to do next and I thank every single one of you who aimed to make Miraheze an amazing community for doing so.
+
+- June 15, 2023
